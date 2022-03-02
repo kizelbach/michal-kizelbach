@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 Subject Matter Expert - Sourcing in Bee Talents.
+- 🔭 Senior Talent Sourcer at Merixstudio.
 - 🌱 Sourcing on GitHub ;)
 - 💬 Ask me about other sourcing techniques/tools.
 - 📫 https://www.linkedin.com/in/michal-kizelbach/.
